@@ -1,1 +1,1 @@
-# EloBuddyPaidCrackScript
+Crack script for EloBuddy
